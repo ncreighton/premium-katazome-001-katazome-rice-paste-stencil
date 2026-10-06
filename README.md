@@ -1,0 +1,2 @@
+# premium-katazome-001-katazome-rice-paste-stencil
+Tired of scattered notes, forgotten paste ratios, and lost stencils derailing your katazome projects? This Notion template brings methodical order to your craft.  The Katazome Rice Paste &amp; Stencil Craft Lab transforms your creative chaos into a repeatable, trackable system. It centralizes your paste recipes, stencil library, project timelines, and
